@@ -1,2 +1,2 @@
 # Education
-Seeking Emplyment in an Educational Environment
+Seeking Employment in an Educational Environment
